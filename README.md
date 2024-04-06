@@ -1,0 +1,1 @@
+Shortcut project AI
